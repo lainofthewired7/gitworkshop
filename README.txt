@@ -1,1 +1,1 @@
-getting started
+getting star
